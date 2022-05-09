@@ -5,3 +5,7 @@ Hope it helps you.
 ## Visit our WebSite 
 ## offerscoding.ninja 
 for Coding Ninjas Solutions and Discount Offers on CodingNinjas Courses
+## Use the Code 
+# HAMRK
+## To Get upto 42 % (30% Early Bird + 12 % Our Additional Discount)
+### Direct Link >> https://www.codingninjas.com/?referralCode=HAMRK
